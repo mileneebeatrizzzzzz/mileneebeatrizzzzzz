@@ -1,0 +1,10 @@
+- 💋 **Biazinha**
+- 📍**Pinhão/PR**
+- 🇧🇷Perfil do inst/ @milene__beatriz
+- 💍**flamengo**
+- 🥇**futebol/futsal**
+- 🌈**sejam bem viados**
+- 😶‍🌫️**MAKTUB**
+- 🍂**Estou utilizando como organização**
+- 🌸**procuro colaborar em estudos**
+- 📬**milene.beatriz.camargo@escola.pr.gov.br**
